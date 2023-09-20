@@ -7,5 +7,5 @@ I really enjoy connecting with like-minded data people, sharing my skills, exper
 
 
 Connect with me on IG ➡︎ [@gaboytes9](https://www.instagram.com/gaboytes9/)
-Find me on LinkedIn ➡︎ (https://www.linkedin.com/in/geraboytes/)
+Find me on LinkedIn ➡︎ [german](https://www.linkedin.com/in/geraboytes/)
 ☕ Dicord Data Group ➡︎ (https://discord.gg/qqNAfRJMH8)
