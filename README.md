@@ -16,7 +16,7 @@ I really enjoy connecting with like-minded data people, sharing my skills, exper
 
 - 💻 My Website Portafolio ➡︎ [Website](https://gerblake77.wixsite.com/portafolioger)
 
-- 📫  How to reach me **german.aboytes@gmail.com**
+- 📫  How to reach me **gaboytes.mzo@gmail.com**
 
 
 <h3 align="left">Languages and Tools:</h3>
